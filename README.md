@@ -2,7 +2,7 @@
 - 👀 I’m interested in Solana memecoin trading like #Sniping, #PNL monitoring & #Auto selling and very good utilities development.
 - 🌱 I’m currently learning New trading strategies and methods.
 - 💞️ I’m looking to collaborate on Degen Memecoin Traders
-- 📫 How to reach me [Takhi](https://t.me/@Takhi777)
+- 📫 How to reach me [SolSon](https://t.me/@pio_sol)
 - 😄 Pronouns: Mapoc
 - ⚡ Fun fact: I lost my old github currently, I don't why it is happening, I am uploading my all repositories, this new github account.
 
